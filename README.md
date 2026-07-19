@@ -1,4 +1,7 @@
 > 原文：[*Voyages to the End of the World*](https://firstthings.com/voyages-to-the-end-of-the-world/) — Peter Thiel & Sam Wolfe, *First Things*, October 2025
+
+
+
 > 本文是一篇中文科普解读，旨在帮助没有文学/神学背景的读者理解 Thiel 的文章核心论点。所有解读基于原文，不构成对作者观点的替代。
 
 # Peter Thiel 的「末世航行」：科技、敌基督与第三条路
